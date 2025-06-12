@@ -1,4 +1,4 @@
-# Yu Chao's Personal Rebuttal  
+# Yu Chao's Personal Statement  
 *Statement in response to defamatory accusations and public attacks*  
 
 ---
