@@ -24,7 +24,7 @@ Email: realyuchao@gmail.com
 
 For Yu Chao’s full personal statement regarding recent events and allegations, please see:
 
-👉 [Yu Chao Personal Statement](https://github.com/WhistleblowerRetaliation/timelineconcise/blob/main/Yu%20Chao%20Personal%20Rebuttle.md)
+👉 [Yu Chao Personal Statement](https://github.com/WhistleblowerRetaliation/timelineconcise/blob/main/Yu%20Chao%20Personal%20Statement.md)
 
 ---
 ## Why This Timeline Matters
