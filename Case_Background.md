@@ -19,7 +19,7 @@ GoFundMe Page (legal defense fund):
 Email: realyuchao@gmail.com
 
 ---
-## Yu Chao’s Personal Rebuttal
+## Yu Chao’s Personal Statement
 
 
 For Yu Chao’s full personal statement and rebuttal regarding the allegations against him, please see:  
