@@ -1,6 +1,8 @@
 # Whistleblower Retaliation Timeline: Yu Chao vs. Falun Gong
 
-This project documents the escalating pattern of retaliation faced by whistleblower **Yu Chao**, a long-time Falun Gong practitioner, after he publicly exposed internal abuses within affiliated organizations such as **Shen Yun Performing Arts**.
+This project documents the escalating pattern of retaliation faced by whistleblower **Yu Chao**, a long-time **Falun Gong** practitioner, after he publicly exposed internal abuses within affiliated organizations such as **Shen Yun Performing Arts**.
+
+👉 **Topics include:** *whistleblower retaliation, Falun Gong, Shen Yun, human rights, free speech, abuse of power, whistleblower protection, CCP disinformation claims.*
 
 The timeline and supporting materials aim to provide a clear, factual record for use by:
 
