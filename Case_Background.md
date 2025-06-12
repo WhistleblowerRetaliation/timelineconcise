@@ -19,7 +19,14 @@ GoFundMe Page (legal defense fund):
 Email: realyuchao@gmail.com
 
 ---
+## Yu Chao’s Personal Rebuttal
 
+
+For Yu Chao’s full personal statement and rebuttal regarding the allegations against him, please see:  
+
+👉 [Yu Chao Personal Rebuttal](https://github.com/WhistleblowerRetaliation/timelineconcise/blob/main/Yu%20Chao%20Personal%20Rebuttle.md)
+
+---
 ## Why This Timeline Matters
 
 This timeline project documents the pattern of retaliation Yu Chao has faced since making his disclosures public — including:
